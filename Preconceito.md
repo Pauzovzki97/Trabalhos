@@ -1,0 +1,6 @@
+- Ideia ou conceito ==formado antecipadamente e sem fundamento sério ou imparcial.==
+- Ao contrário do [[Estereótipos]] é formulado antes e por isso apenas pode ser provado depois de o mal ou bem estar feito
+- Cria uma barreira à interação social(sociedade)
+- Pode ser uma defesa
+- Logo é  ==desvantajoso==!
+- ![[Recording 20210610223749.webm]]

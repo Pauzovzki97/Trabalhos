@@ -1,0 +1,3 @@
+- [x] Previsão, definir o [[Estereótipos]]
+- [ ] Debate/Desenvolvimento, [[Estereótipos]] é correto?
+- [ ] Conclusão ver as vantagens e desvantagens, estudos empiricos
